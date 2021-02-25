@@ -1,3 +1,3 @@
 # loofah-m4l-devices
 
-you can find a demonstration of population.amxd here: https://youtu.be/1n5wHJ70jz8
+you can find demonstrations of select devices here: https://www.youtube.com/channel/UCPBHAH67Ef6S7GLJjRToMlQ
